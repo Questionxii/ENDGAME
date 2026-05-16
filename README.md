@@ -1,1 +1,1 @@
-VIEW RAW MO REKTA DOWNLOAD YAN!
+tap view raw to doanload!
